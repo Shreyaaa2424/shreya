@@ -1,2 +1,2 @@
 # shreya
-she is a good studenbt
+she is a good student
